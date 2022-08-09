@@ -1,0 +1,16 @@
+**Essas são as minhas informações**
+
+Para maiores informações, acessar o meu 
+
+Linkedin: [Guilherme Rodrigues | LinkedIn](https://www.linkedin.com/in/guilherme-rodrigues-83407718a/)
+
+Lattes: [Currículo do Sistema de Currículos Lattes (Guilherme da Silva Rodrigues) (cnpq.br)](http://buscatextual.cnpq.br/buscatextual/visualizacv.do?id=K8061390T0&tokenCaptchar=03ANYolqtA6k4sGApujZNcRAj9jww8FqZluh6AGSQYiyKfCOAVcCi1mwDCEunZW1K3kXFu5AVPZwcQe9eo3U0XzNz9vU_jM8u2dWjQOIJ5ZDKX4fJoulmX8pUZSxG9Yr9UWoOigAiPYVRCz1D8ZDrtHV9qELzKcCya6k6HbJrBQyVHNcKoxc3l7ITygN-vWBOuFJrigiKHRyPxewwXDDqCUKJ726kQm5nbns0DKsH1Tqrqa0iWowSNDvJGPbXp6S7WAEDTFGyEt4qNlHOAKj45XdsY2oOjX5iK6eUIn72xhAoi3e5K9GStff2l8BngeoeKp2xtMVbfwCFGF_eMJbdlhskbF0SjH8xSXntXPNb3HGFdp7FwmhQa6qgbne-plGfUFKZQtfhkyClJoQZeu_qbsLRnV2mQvjKI807NoHWJV2B6JrW839F8FYhV-LorvpgwMvV2V3Pq6JKIDYhaqOQOmZBhoZwCMBUnloT-3n7lTi1y5XpLUSxIWKlsptq9GMMyXgZuooTXyR8B)
+
+
+
+
+
+
+
+
+
